@@ -1,0 +1,17 @@
+NAME - MOHAMMAD SAMEER
+
+
+
+SUBJECT - DMDW LAB
+
+
+
+ROLL NO - 24CSE229
+
+
+
+
+SECTION - B 
+
+
+SEM - 5TH
